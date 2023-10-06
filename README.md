@@ -1,2 +1,1 @@
-@avotrarivojames was awarded this badge on 2023-10-06T07:18:56.541Z (UTC).
-The unique Badge ID is clne9zg2l27020flb0bsg3v2m.
+[![An image of @avotrarivojames's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/avotrarivojames)](https://holopin.io/@avotrarivojames)
